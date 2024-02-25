@@ -2,4 +2,3 @@
 - 👀 I’m interested in python
 - 🌱 I’m currently learning node.js
 - 📫 How to reach me TG CHANNEL: t.me/armor1k, TG PROFILE: t.me/artem4iko
-- ⚡ Fun fact: I'm armor1k
